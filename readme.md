@@ -1,0 +1,1 @@
+The task about News paper
